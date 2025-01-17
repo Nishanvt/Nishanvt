@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ideas
 - 📫 How to reach me in github
 - 😄 Pronouns: devloper 
-- ⚡ Fun fact: life is simple we insist on making it complicated.
+- ⚡ Fun fact: "life is simple we insist on making it complicated."...
